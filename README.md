@@ -1,0 +1,1 @@
+I have just started my first official project in Odin. Until now I've built two pages but it's mostly just copied stuff, nothing out of my own head. I have a feeling that this one will be quite the same, but that's the beginning, I guess. We all gotta start somewhere. Good luck to me - 21:24 - Sept 7 2020
